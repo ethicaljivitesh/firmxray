@@ -5,7 +5,7 @@
 ---
 
 ## 👨‍💻 Developed By
-**Jivitesh Khatri**
+**Jivitesh Khatri /Director at Forensic Academy**
 
 ---
 
